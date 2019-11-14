@@ -1,1 +1,1 @@
-# SN1aDataandH0
+# There is only one Universe. No burn sample.
